@@ -1,5 +1,5 @@
-- 👋 Salut, moi c'est Dorian je suis en étude d'informatique avec une préférence pour la Cyber
-- 👀 J'apprends petit à petit la cyber - Pour l'instant petit préférence pour le Osint
-- 🌱 J'aime sortir et m'amuser entre amis
-- 💞️ Rennes
-- 📫 Vous pouvez me contacter sur Discord via le pseudo Dorixe
+- 👋 Salut, moi c'est Dorian je suis en étude d'informatique plus précisemment en Bachelor 
+- 👀 J'apprends petit à petit la cyber - Pour l'instant petit préférence pour le Osint 🙂
+- 🌱 J'aime sortir et m'amuser entre amis (La patinoire quel banger)
+- 💞️ Rennes - Breton dans l'âme #emojibzh🍺
+- 📫 Vous pouvez me contacter sur Discord via le pseudo doggy2408
